@@ -1,4 +1,4 @@
-# 💫 About Me:
+
 Hello! I am ravi kumar , I am a BCA student.
 
 
